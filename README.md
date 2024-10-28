@@ -1,2 +1,2 @@
 # IBLISandHisBrother
-IBLIS and His Brother are shatans
+IBLIS and His Brothers(Hindus) are shatans
