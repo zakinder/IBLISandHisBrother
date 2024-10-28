@@ -12,3 +12,5 @@ Tazab are for those who make it happen(4 UnseensConnectedWithSakinderAliOnly).
 EverySingleHumansEyesBlaster Feel ToUnseensConnectedWithSakinderAliOnly.
 
 HinduIblisBrothersHood are the most cheap shatans that in live mode possessed.HellOfTazabAzabMeant4EverToHinduIblisBrothersHood
+
+The Shatan Hindu gods;Trimurti,Shiva,Brahma, Parvati, Krishna, Vishnu, Lakshmi, Ganesh, Nataraja, Devi, Saraswati, Shakti, Buddha, Kali, Murugan, Patanjali, and Hanuman are meant for hell. Each name serve for shatans services since from begin.
