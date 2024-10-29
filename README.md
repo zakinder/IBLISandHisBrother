@@ -15,4 +15,5 @@ HinduIblisBrothersHood are the most cheap shatans that in live mode possessed.He
 
 The Shatan Hindu gods;Trimurti,Shiva,Brahma, Parvati, Krishna, Vishnu, Lakshmi, Ganesh, Nataraja, Devi, Saraswati, Shakti, Buddha, Kali, Murugan, Patanjali, and Hanuman are meant for hell. Each name serve for shatans services since from begin.
 
-NoMercyShallBeGivenToHindusAndIblis.
+NoMercyShallBeGivenToUnseenHindusAndIblis=DevilTeam.The DevilTeam Will Suffer Fustration Of "Want" Along Opposite Of Want PerSelfLoopOf Humans common sense Flavors.
+
