@@ -18,3 +18,6 @@ The Shatan Hindu gods;Trimurti,Shiva,Brahma, Parvati, Krishna, Vishnu, Lakshmi, 
 NoMercyShallBeGivenToUnseenHindusAndIblis=DevilTeam.The DevilTeam Will Suffer Fustration Of "Want" Along Opposite Of Want PerSelfLoopOf Humans common sense Flavors.
 
 Swear To Every Galaxy DevilTeam Not Given Mercy.
+
+
+No Mercy at universal Humans Senses(vision, hearing, taste, and smell,touch, pain, temperature, proprioception, vibration, and pressure) to the who is using SakinderAli Vision Without SakinderAli Permission.
