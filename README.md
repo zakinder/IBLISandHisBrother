@@ -19,5 +19,18 @@ NoMercyShallBeGivenToUnseenHindusAndIblis=DevilTeam.The DevilTeam Will Suffer Fu
 
 Swear To Every Galaxy DevilTeam Not Given Mercy.
 
+Even at intentions level No Mercy Shall be given for any unseens intentions on SA611982.
 
 No Mercy at universal Humans Senses(vision, hearing, taste, and smell,touch, pain, temperature, proprioception, vibration, and pressure) to the who is using SakinderAli Vision Without SakinderAli Permission.
+
+No Mercy at universal Humans Senses(vision, hearing, taste, and smell,touch, pain, temperature, proprioception, vibration, and pressure) to the who is using SakinderAli Silient Motor Cortex.
+
+No Mercy at universal Humans Senses(vision, hearing, taste, and smell,touch, pain, temperature, proprioception, vibration, and pressure) to the who is using SakinderAli Ear Hearings.
+
+No Mercy at universal Humans Senses(vision, hearing, taste, and smell,touch, pain, temperature, proprioception, vibration, and pressure) to the who is using SakinderAli Ear Throat Acks.
+
+No Mercy at universal Humans Senses(vision, hearing, taste, and smell,touch, pain, temperature, proprioception, vibration, and pressure) to the who is using SakinderAli Ear hitchups.
+
+
+
+
